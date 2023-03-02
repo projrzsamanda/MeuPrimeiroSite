@@ -1,1 +1,1 @@
-https//projrzsamanda.github.io//MeuPrimeiroSite
+https//projrzsamanda.github.io/MeuPrimeiroSite
